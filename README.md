@@ -1,5 +1,5 @@
 # Assignment1
-# A web
+# Don't let it pull you down
 ## THIS IS WHAT YOU DO WHEN IT GET's TOUGHER
 * Cry :weary: | If you really need to. | :blush: |
 * Workout 
@@ -18,7 +18,7 @@ Avoid being stressed, eat healthy, make sure you interact with other and share o
 | Life is Tasty| are neat      |
 
 [Follow this to learn more about insprational books](https://www.google.com.gh/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=inspirational+books)
-[Personal workouts](http://www.moneycrashers.com/indoor-at-home-exercises-without-equipment/)
+[Personal workouts](http://www.moneycrashers.com/indoor-at-home-exercises-without-equipment/"Google's Homepage")
 Stay happy.| :smile: |
 
 
