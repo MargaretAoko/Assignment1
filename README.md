@@ -7,6 +7,9 @@
 * Listen to music
 
 ![alt text](yoga.jpg "Excercise")
+![alt text](smile.jpg "Keep a happy face")
+
+
 
 
 
