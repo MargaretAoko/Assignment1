@@ -1,7 +1,7 @@
 # Assignment1
 # A web
 ## THIS IS WHAT YOU DO WHEN IT GET's TOUGHER
-* Cry
+* Cry :weary: | If you really need to. | :blush: |
 * Workout 
 * Read Inspirational books
 * Listen to music
@@ -19,7 +19,7 @@ Avoid being stressed, eat healthy, make sure you interact with other and share o
 
 [Follow this to learn more about insprational books](https://www.google.com.gh/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=inspirational+books)
 [Personal workouts](http://www.moneycrashers.com/indoor-at-home-exercises-without-equipment/)
-| :blush: |
+Stay happy.| :smile: |
 
 
 
