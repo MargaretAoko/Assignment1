@@ -11,7 +11,7 @@
 
 Avoid being stressed, eat healthy, make sure you interact with other and share out your feelings with others. Always think postively, negative attitude will lead you into a pt full of sorrows and loneliness.
 
-| Books to read      | Are           |
+| Books to read      | Take note of what you read         |
 | -------------      |:-------------:| 
 | How to influence others        | 
 | Be happy your are loved  |      |   
@@ -19,7 +19,7 @@ Avoid being stressed, eat healthy, make sure you interact with other and share o
 
 [Follow this to learn more about insprational books](https://www.google.com.gh/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=inspirational+books)
 [Personal workouts](http://www.moneycrashers.com/indoor-at-home-exercises-without-equipment/)
-++#|:Happy:|
+| :blush: |
 
 
 
