@@ -9,13 +9,13 @@
 ![alt text](yoga.jpg "Excercise")
 ![alt text](smile.jpg "Keep a happy face")
 
-Avoid being stressed, eat healthy, make sure you interact with other and share out your feelings with others. 
+Avoid being stressed, eat healthy, make sure you interact with other and share out your feelings with others. Always think postively, negative attitude will lead you into a pt full of sorrows and loneliness.
 
-| Books to read      | Are           | Cool  |
-| -------------      |:-------------:| -----:|
-| How to influence others        | | $1600 |
-| Be happy your are loved  | Be hapBe happy your are lovedpy your are loved      |   $12 |
-| Life is Tasty| are neat      |    $1 |
+| Books to read      | Are           |
+| -------------      |:-------------:| 
+| How to influence others        | 
+| Be happy your are loved  |      |   
+| Life is Tasty| are neat      |
 
 [Follow this to learn more about insprational books](https://www.google.com.gh/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=inspirational+books)
 
